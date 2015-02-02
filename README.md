@@ -1,2 +1,0 @@
-# SAWONJUNGFinder
-zzz
